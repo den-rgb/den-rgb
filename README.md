@@ -1,4 +1,4 @@
-# Hi, my names Denis
+# Hi, my name's Denis
 
 ## *I’m interested in a large variety of things, such as:* 
 - Animation
